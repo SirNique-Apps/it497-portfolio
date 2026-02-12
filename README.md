@@ -75,8 +75,8 @@ Through spiritual reflection and intentional growth, I have learned that profess
 
 # Contact
 
-LinkedIn: (Add when ready)  
-Email: (Optional)  
+LinkedIn: (Added soon)  
+Email: sirnana111@gmail.com 
 
 ---
 
